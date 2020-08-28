@@ -1,2 +1,2 @@
-# html
-Class Coding 
+# Mindfulness Techniques 
+ 
